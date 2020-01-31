@@ -1,0 +1,2 @@
+# peuradeun
+Jurnal Ilmiah Peuradeun (JIP), the International Journal of Social Sciences, is a leading peer-reviewed and open-access journal, which publishes scholarly work, and specializes in the Social Sciences. The main objectives are to promote interdisciplinary thinking and to provide scholars a platform to exchange knowledge from a variety of perspectives and locations, which had a significant impact and a real contribution to the community at large, practical and academic worlds. JIP published by SCAD Independent.
